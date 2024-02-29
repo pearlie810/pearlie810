@@ -7,4 +7,4 @@ I'm Anne, a multi-disciplinary designer based in Toronto, Canada. My Vietnamese 
 This website (pearlie.net) is where I'm documenting parts of my life as a 20-something-year-old figuring life out one step at a time ✦
 
 Lots of love,
-Anne ♥︎
+Anne
